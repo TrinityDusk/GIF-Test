@@ -1,18 +1,6 @@
 # GIF-Test!
 
-
-
-https://github.com/user-attachments/assets/4c313ae2-6a0d-45e5-9bf8-5c2243ed82cb
-
-
-
-https://github.com/user-attachments/assets/491356a5-9c06-4bc2-9de1-52b7786e236b
-
-
-
-https://github.com/user-attachments/assets/96a84fe0-fe66-4aa7-bd87-0db95213a2aa
-
-
-
-https://github.com/user-attachments/assets/2b0b8658-0ebd-4ae5-8854-8e9c6d54829e
-
+![F-Tail-+-Eyes](https://github.com/user-attachments/assets/0322e071-68fb-429a-9278-7de7f0ed1d22)
+![F-Tail](https://github.com/user-attachments/assets/4e48ba2f-a7d9-4a4e-b488-4e047cd44473)
+![F-Eyes](https://github.com/user-attachments/assets/16e0a273-70d0-4093-89c9-b8d5f48990a4)
+![F-Default](https://github.com/user-attachments/assets/97fa4f39-5ff6-476f-ae39-5e5fcfc031b4)
